@@ -1,1 +1,0 @@
-If you see this, you are gay
